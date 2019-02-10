@@ -1,2 +1,2 @@
 # CV
-my CV
+my CV http://bronson49.xyz 
